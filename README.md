@@ -1,5 +1,5 @@
-## ¡Hola!👋
-## Soy Vanesa Carrillo 💜
+## ¡Hello!👋
+## I am Vanesa Carrillo 💜
 
 
 
